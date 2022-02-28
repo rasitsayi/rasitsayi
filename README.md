@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @rasitsayi
 - 👀 I’m interested in new entrepreneurship ideas almost everyday.
 - 🌱 I’m currently learning machine learning
-- 📫 How to reach me : rasitsayi@gmail.com
